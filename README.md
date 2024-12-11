@@ -1,1 +1,1 @@
-Data available upon request.
+Data and specific models available upon request.
